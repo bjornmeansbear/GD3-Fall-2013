@@ -20,6 +20,8 @@ Chapter 7, Stories and Voids - http://read.shapeofdesignbook.com/chapter07.html
 _The Futurist Manifesto_
 by Filippo Tommaso Marinetti
 
+(also, this: https://medium.com/who-needs-art/4d1c59130030)
+
 _Space-Time Problems_
 by László Moholy-Nagy
 
