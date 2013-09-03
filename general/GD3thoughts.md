@@ -12,7 +12,7 @@ When you find readings that you like, you should read either the rest of that bo
 
 ### On your own
 - 10 animated gifs over the course of the term (the 1 in class doesn't count!)
-- Stop Motion project
+- Animated Frames project — this can be a Flipbook, a stop-motion,  a slideshow of some sort… but the point is to utilize simple, frame-by-frame techniques.
 - Animated shapes
 - Animated Word video and book
 - Animated Identity
@@ -21,8 +21,6 @@ When you find readings that you like, you should read either the rest of that bo
 - A way to trick them into reading more of the assigned books?
 
 textless narrative of one of the chapters???
-
-
 
 +=+=+=+=+=+=+=+=+=+=+=+=+
 
@@ -41,3 +39,10 @@ Other project ideas:
 some sort of timeline project?
 	- timeline/info graphic?
 	- look up skill share noun project icon timeline thingy…
+
++=+=+=+=+=+=+=+=+=+=+=+=+
+
+Reference Ideas!
+
+http://www.adgcreative.net
+http://columnfivemedia.com
